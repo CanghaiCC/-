@@ -1,0 +1,2 @@
+# -
+can help you to memorize word 
